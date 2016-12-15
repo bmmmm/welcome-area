@@ -1,2 +1,2 @@
 # welcome-area
-comfortable place
+comfortable place, feel goooood :)
